@@ -1,1 +1,1 @@
-这里主要记录我的数学知识的学习
+数学知识请大家移步：https://warnstein001.github.io/categories/ 找寻数学相关博客
